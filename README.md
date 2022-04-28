@@ -10,8 +10,6 @@
 
 - 📫 How to reach me **allan.burnier@gmail.com**
 
-- ⚡ Fun fact :- I can can't cook anything else than chicken.
-
 <br>
 
 <h3>Statistical Data :-</h3>
